@@ -2,7 +2,7 @@
 # Do you enjoy yelling at random people online about what the best digiatal monster is
 # Then we have the site for you!!!
 
-Welcome to waifu cock fight, the only site that lets you buy, fight, and bet on pokemon based not on their stats, not of the trainers skill, but purely based on how *SICK* they are.
+Welcome to Pokemon Bettles, the only site that lets you buy, fight, and bet on pokemon based not on their stats, not of the trainers skill, but purely based on how *SICK* they are.
 
 Come join in and earn your first pokemon pack free, its like a slotmachine, except its not regulated because its aimed at kids.
 
